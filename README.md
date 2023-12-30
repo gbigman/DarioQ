@@ -5,3 +5,7 @@
 <img width="302" alt="review_1" src="https://github.com/gbigman/DarioQ/assets/22451784/458c7a11-60ed-443b-bda1-9a1db8a3e361">
 
 
+
+
+https://github.com/gbigman/DarioQ/assets/22451784/c7b74d58-6273-4919-b792-1d5f354701af
+
