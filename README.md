@@ -11,9 +11,6 @@
 <img width="302" alt="sofa_1" src="https://github.com/gbigman/DarioQ/assets/22451784/25797501-6018-4f84-af65-044c4c7b7993">
 
 
-https://github.com/gbigman/DarioQ/assets/22451784/c7b74d58-6273-4919-b792-1d5f354701af
-
-
 https://github.com/gbigman/DarioQ/assets/22451784/1920bc51-1493-4e79-8cb7-83f8ae4e2dda
 
 
