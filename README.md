@@ -4,6 +4,9 @@
 <img width="496" alt="review_2" src="https://github.com/gbigman/DarioQ/assets/22451784/e975d8bc-3e21-4b2b-9d4d-40583f86ed1d">
 <img width="302" alt="review_1" src="https://github.com/gbigman/DarioQ/assets/22451784/458c7a11-60ed-443b-bda1-9a1db8a3e361">
 
+
+
+
 <img width="299" alt="sofa_3" src="https://github.com/gbigman/DarioQ/assets/22451784/4aa3dee9-ec04-4feb-9837-6885815acd4f">
 <img width="705" alt="closet2" src="https://github.com/gbigman/DarioQ/assets/22451784/845e60de-0afb-4a70-8ac5-843e3c7b27a2">
 <img width="703" alt="sofa_1" src="https://github.com/gbigman/DarioQ/assets/22451784/e621b70c-4c17-4da1-aa28-d7bb916c2150">
